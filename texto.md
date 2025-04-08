@@ -1,1 +1,1 @@
-Cambios hechos por Usuario2-acorredera Usuario1-albertocorrederafp
+Cambios hechos por  Usuario1-albertocorrederafp
